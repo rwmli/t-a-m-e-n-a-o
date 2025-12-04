@@ -14,20 +14,20 @@
 
 <p align="center">
   <span style="color:#FF0000;">
-  𓆩★𓆪 Add me on discord, dm me for free art (if i'm free) : <b>Mimolettt</b> <br>
-  🎀 tiktok : <b>Mimolettt</b> <br>
-  🌀 instagram, for free art (if i'm free) : <b>lwloubrl</b>
+  ᯓ★ˎˊ˗  Add me on github!!! : <b>rwmli</b> <br>
+   busy, whisper 2 interact </b> <br>
   </span>
 </p>
 
 <p align="center">
 
   <span style="color:#ffffff;">
-  ✧ Mimi ✦ cat ✦ ♡ <br>
-  ୨ her : Bi ⚣ 17 ୧ <br>
-  enfp ✦ scars : <img src="https://files.catbox.moe/n35vwv.gif" width="10"> <br>
-  <img src="https://i.postimg.cc/L6dPdS7N/u2pe4x.gif" width="10"> <br>
-  ✩ I've always felt alone, my † whole life. ✩
+  જ⠀⁀⠀   Mimi - cat ✦ <img src="https://i.postimg.cc/wj87rk1P/2gn66x.gif" width="30"> <br>  ᱖༢ུ⠀<br>
+  ୨   her : none  ⠀ 𝅄 ⠀ † 17 ୧ <br>
+    ◞ ⠀⠀ ◟</br>
+  enfp ✦ scars   - -⠀⠀ ͜ ⠀◞ : <img src="https://files.catbox.moe/n35vwv.gif" width="30"> <br>
+  <img src="https://i.postimg.cc/L6dPdS7N/u2pe4x.gif" width="30"> <br>
+   ⠀ ‧ ⠀<img src="https://i.postimg.cc/wj87rk1P/2gn66x.gif" width="30"> <br> ₊  I've always felt alone, my † whole life. ◞ ⠀ ੈ
   </span>
 
 </p>
