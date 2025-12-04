@@ -4,6 +4,7 @@
    <img src="https://i.pinimg.com/originals/f0/25/30/f02530d268635538c9058345f070d3a1.gif" width="300">
   <img src="https://file.garden/ZhR7DLcFMh_Z3OTH/depressant/lace02" width="100%">
 </p>
+<p align="center">
  <img src="https://i.pinimg.com/originals/b8/1e/c7/b81ec7411a9ac4988faaa500ca8f53df.gif" width="300">
 <p align="center">
   <span style="color:#c44545; font-size:28px;"><b>mimolett's artfight page !</b></span>
