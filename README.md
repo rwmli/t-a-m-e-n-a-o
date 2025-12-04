@@ -1,7 +1,7 @@
 #tamenao
 
 <p align="center">
-   <img src="https://i.pinimg.com/originals/f0/25/30/f02530d268635538c9058345f070d3a1.gif" width="50">
+   <img src="https://i.pinimg.com/originals/f0/25/30/f02530d268635538c9058345f070d3a1.gif" width="100">
   <img src="https://file.garden/ZhR7DLcFMh_Z3OTH/depressant/lace02" width="100%">
 </p>
 
@@ -10,7 +10,6 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/wj87rk1P/2gn66x.gif" width="100">
 </p>
 
 <p align="center">
