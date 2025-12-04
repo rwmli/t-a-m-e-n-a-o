@@ -9,11 +9,11 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/wj87rk1P/2gn66x.gif" width="200">
+  <img src="https://i.postimg.cc/wj87rk1P/2gn66x.gif" width="100">
 </p>
 
 <p align="center">
-  <span style="color:#ffffff;">
+  <span style="color:#FF0000;">
   𓆩★𓆪 Add me on discord, dm me for free art (if i'm free) : <b>Mimolettt</b> <br>
   🎀 tiktok : <b>Mimolettt</b> <br>
   🌀 instagram, for free art (if i'm free) : <b>lwloubrl</b>
@@ -25,15 +25,15 @@
   <span style="color:#ffffff;">
   ✧ Mimi ✦ cat ✦ ♡ <br>
   ୨ her : Bi ⚣ 17 ୧ <br>
-  enfp ✦ scars : <img src="https://files.catbox.moe/n35vwv.gif" width="80"> <br>
-  <img src="https://i.postimg.cc/L6dPdS7N/u2pe4x.gif" width="120"> <br>
+  enfp ✦ scars : <img src="https://files.catbox.moe/n35vwv.gif" width="10"> <br>
+  <img src="https://i.postimg.cc/L6dPdS7N/u2pe4x.gif" width="10"> <br>
   ✩ I've always felt alone, my † whole life. ✩
   </span>
 
 </p>
 
 <p align="center">
-  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono28" width="400">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono28" width="100">
 </p>
 
 <p align="center">
@@ -45,7 +45,7 @@
 </p>
 
 <p align="center">
-  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono28" width="400">
+  <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono28" width="100">
 </p>
 
 <p align="center">
